@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @esendiiaa
-- 👀 I’m interested in gaining new knoledge
+- 👀 I’m interested in gaining new knowledge
 - 🌱 I’m currently learning everything from scratch
 - 💞️ I’m looking to collaborate on various projects
 - 📫 How to reach me - eslivjuka@gmail.com insta.com/esendiiaa
