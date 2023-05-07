@@ -2,7 +2,7 @@
 - 👀 I’m interested in gaining new knoledge
 - 🌱 I’m currently learning everything from scratch
 - 💞️ I’m looking to collaborate on various projects
-- 📫 How to reach me - eslivjuka@gmail.com
+- 📫 How to reach me - eslivjuka@gmail.com insta.com/esendiiaa
 
 <!---
 esendiiaa/esendiiaa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
